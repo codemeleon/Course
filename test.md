@@ -1,3 +1,2 @@
 This is class of weirdos
-
-Temwani is sleeping
+Anmol was instructing the class
